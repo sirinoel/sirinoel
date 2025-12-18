@@ -1,14 +1,14 @@
 <div align="center">
 
 
-$\texttt{\color{#883DA4}" Show me that you really care ! "}$
+$\texttt{\color{#D8B8A1}" Show me that you really care ! "}$
 
 
 
 
 
-![](https://i.imgur.com/h5JjB1p.png)
+![](https://i.imgur.com/Os48Nb6.png)
 
-$\texttt{\color{#883DA4}opera ☆ andromeda‎}$\
+$\texttt{\color{#D8B8A1}opera‎}$\
 $\texttt{\color{#ffffff}she / it  !}$\
 $\texttt{\color{#ffffff}aroflux lesbian}$
