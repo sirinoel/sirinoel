@@ -1,14 +1,16 @@
 <div align="center">
 
 
-$\texttt{\color{#D8B8A1}" Sweet reverie, in too deep "}$
+$\texttt{\color{#E8B5BF}" 𝔂ou used to be my romeo ! "}$
 
 
 
 
 
-![](https://i.imgur.com/Os48Nb6.png)
+<p align="center">
+  <p align="center"> <img src="https://i.imgur.com/QDGDwBf.png"width="85%"/>
 
-$\texttt{\color{#D8B8A1}opera‎}$\
+$\texttt{\color{#E8B5BF}𝓸pera‎}$\
+$\texttt{\color{#0D1117}.‎}$\
 $\texttt{\color{#ffffff}it/she}$\
 $\texttt{\color{#ffffff}aroflux lesbian}$
